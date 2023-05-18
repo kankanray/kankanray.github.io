@@ -1,1 +1,0 @@
-# kankanray.github.io
